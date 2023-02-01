@@ -1,0 +1,2 @@
+# resumencurricularenelsotillo
+resumen curricular
